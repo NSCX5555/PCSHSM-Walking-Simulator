@@ -1,1 +1,1 @@
-# This Game Made by Studnt in 2/4 Class
+# This Game Made by Students in 2/4 Class
